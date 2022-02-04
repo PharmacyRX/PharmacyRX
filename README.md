@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @PharmacyRX and I want to make life easier for students under a crumbling education system
+- 👀 I’m interested in producing high quality health professional to serve our community as a whole and the ability to have access to information, without restrictions.
+- 🌱 I’m currently learning how to streamline processes and biomedicines in future patients needs
+- 💞️ I’m looking to collaborate on making a simple free app (advert supported) or low cost for supporters to have an up to date app, where not only can health professionals access drug / medical information but also use the app as a testing platform where an algirism can ID areas the student is struggle and contiune to give daily quizes and soltuions on the area of trouble until it is learnt.
+- 📫 How to reach me medstu@protonmail.com
+- Can't help, but wanna do something, then show your health professionals a little love and respect next time. Our job sucks sometimes and it small things that remind me and many of my friends why we do the job we do. Our patients are family and your health is our happiness. 
